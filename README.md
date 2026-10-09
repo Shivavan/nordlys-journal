@@ -1,0 +1,1 @@
+Этот сайт переехал: https://nordlys-journal.github.io
